@@ -1,1 +1,0 @@
-# Natanael-Marbun-Lumbangaol_251401022_UTS_SD1
